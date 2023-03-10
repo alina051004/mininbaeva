@@ -1,3 +1,5 @@
+<h1 align="center">(っ◔◡◔)っ ♥ Hi there, I'm Alina ♥</a> 
+
 # mininbaeva pr1
 ![Delete](https://user-images.githubusercontent.com/125024326/218096999-452d3fa8-da95-4e02-8f09-f61e0bada6c9.JPG)
 ![Get( index)](https://user-images.githubusercontent.com/125024326/218097004-a36ca7cb-e692-42be-8cb0-bc58182eb1e9.JPG)
